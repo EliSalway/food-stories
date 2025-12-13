@@ -24,6 +24,7 @@ Green Chili
 ## Audio and Audio Transcription 
 
 Audio: 
+(https://drive.google.com/file/d/1xfN7R3OiX5cE6ErrdN-VlNV2JmR2mvO0/view?usp=drivesdk)
 
 Trascription: 
 
